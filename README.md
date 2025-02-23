@@ -1,13 +1,13 @@
 <p align="center">
-    <img width="300" src="https://64.media.tumblr.com/f442370d3a247c3bdad96161464bc921/3c4472fb1fe74232-57/s1280x1920/fb83afde6d22cf35aa5b2f7411cdf35b8f5eba77.gifv">
+    <img width="300" src="https://64.media.tumblr.com/50ed75c0986c2ee0935758c303f879f2/6f6d878c1fa65d22-7d/s1280x1920/ff928fd3d99b0e1bc73b24c354a05ab00e4d64e1.pnj">
 </p>
 
 <p align="center">
- 一💥 ˖° ⸝⸝ my intro ╰ nickname(s) ﹕keys.... , kie, kiki ... uhrm idk what else ^_^
+ 一💥 ˖° ⸝⸝ my intro ╰ nickname(s) ﹕kenny.... , kie, maysie ... uhrm idk what else ^_^
 </p>
 
 <p align="center">
- ︵ prns ﹕he ,, she
+ ︵ prns ﹕he ,, it
 </p>
 
 <p align="center">
@@ -15,7 +15,7 @@
 </p>
 
 <p align="center">
- bungou stray dogs
+ south park
 </p>
 
 <p align="center">
@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">
- dandadan 
+ bungou stray dogs 
 </p>
 
 <p align="center">
@@ -47,5 +47,5 @@
 </p>
 
 <p align="center">
- discord is skibiditorii
+ discord is piercethemay_
 </p>
